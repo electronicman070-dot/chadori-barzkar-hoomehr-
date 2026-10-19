@@ -1,1 +1,0 @@
-# chadori-barzkar-hoomehr-
